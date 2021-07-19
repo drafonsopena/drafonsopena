@@ -2,7 +2,7 @@
 - 👀 I’m interested in Loving Life Living and Learning.
 - 🌱 I’m currently learning whatever I can to help anyone.
 - 💞️ I’m looking to collaborate on anything, just A.S.K (Matt 7:7).
-- 📫 How to reach me Telegram: +244939929409 or afonsoispena@utlook.com.
+- 📫 Reach me @ afonsoispena@utlook.com.
 
 GOD LOVES US. (JOHN 3:16)
 
