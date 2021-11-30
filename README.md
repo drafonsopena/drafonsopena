@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Afonso Pena(AvvA4LLLL) or @drafonsopena.
+- 👋 Hi, I’m Afonso Pena (AvvA4LLLL).
 - 👀 I’m interested in Loving Life Living and Learning.
 - 🌱 I’m currently learning whatever I can to help anyone.
 - 💞️ I’m looking to collaborate on anything, just A.S.K (Matt 7:7).
